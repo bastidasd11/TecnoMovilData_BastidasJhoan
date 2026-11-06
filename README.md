@@ -1,1 +1,0 @@
-# TecnoMovilData_BastidasJhoan
